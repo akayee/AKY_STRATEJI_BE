@@ -1,0 +1,1 @@
+# AKY_STRATEJI_BE
